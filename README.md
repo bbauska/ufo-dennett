@@ -1,4 +1,4 @@
-<h1>Verticle Timeline of UFO/ET experiences</h1>
+<h1>100 Year Verticle Timeline of UFOs/ETs</h1>
 <h1>ufo-dennett</h1>
 <h6>UFO incidences written about by Preston Dennett from 2017 to 2025. UFO info is dated from 1930's worldwide.</h6>
 
